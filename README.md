@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://github.com/kyupiid/INTRO/blob/754ae9c588aa15f74ae0577ec98edbb797d34c58/image-removebg-preview.png">
+  <img src="https://github.com/kyupiid/kyupiid/blob/36229f1bfdc41107085a75393fe4946de15e5d34/image-removebg-preview.png">
 </div>
 <div align="center">
 he thou 🐕 adult >20 🦴
