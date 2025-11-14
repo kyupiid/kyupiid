@@ -1,8 +1,8 @@
 <div align="center">
-  <img src="https://github.com/kyupiid/kyupiid/blob/36229f1bfdc41107085a75393fe4946de15e5d34/image-removebg-preview.png">
+  <img src="https://github.com/kyupiid/kyupiid/blob/496fbac07c4af1039c48f41ee94a37cc63b5d508/blur_edges.png">
 </div>
 <div align="center">
-he thou 🐕 adult >20 🦴
+coin ^_< 🐕 adult >20 🦴
 </div>
 <div align="center">
 https://admirable.straw.page
