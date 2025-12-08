@@ -14,4 +14,4 @@ https://admirable.straw.page
 https://kyupiid.atabook.org
 </div>
 <div align="center">
-MDNI | C + H | DNC
+UNDER 15 DNI | C + H | DNC
