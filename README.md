@@ -9,3 +9,7 @@ https://admirable.straw.page
 </div>
 <div align="center">
 ‎ask 4 inspo 🚫 copy please
+</div>
+<div align="center">
+https://kyupiid.atabook.org
+</div>
