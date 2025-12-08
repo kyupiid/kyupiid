@@ -13,3 +13,5 @@ https://admirable.straw.page
 <div align="center">
 https://kyupiid.atabook.org
 </div>
+<div align="center">
+MDNI | C + H | DNC
