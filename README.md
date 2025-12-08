@@ -7,4 +7,5 @@ coin ^_< 💧 adult >20 ⭐
 <div align="center">
 https://admirable.straw.page
 </div>
-‎ 
+<div align="center">
+‎ask 4 inspo 🚫 copy please
