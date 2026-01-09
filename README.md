@@ -5,7 +5,7 @@
 coin ^_< 💧 adult >20 ⭐
 </div>
 <div align="center">
-https://admirable.straw.page
+UPDATING
 </div>
 <div align="center">
 ‎ask 4 inspo 🚫 copy please
