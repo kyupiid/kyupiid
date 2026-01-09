@@ -14,4 +14,4 @@ https://rentry.co/greniinja
 https://kyupiid.atabook.org
 </div>
 <div align="center">
-UNDER 15 DNI | C + H | DNC
+UNDER 16 DNI | C + H | DNC
