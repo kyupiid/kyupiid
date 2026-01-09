@@ -5,7 +5,7 @@
 coin ^_< 💧 adult >20 ⭐
 </div>
 <div align="center">
-UPDATING
+https://rentry.co/greniinja
 </div>
 <div align="center">
 ‎ask 4 inspo 🚫 copy please
