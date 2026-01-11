@@ -15,3 +15,4 @@ https://kyupiid.atabook.org
 </div>
 <div align="center">
 UNDER 16 DNI | C + H | DNC
+strawpage kinda old soz
